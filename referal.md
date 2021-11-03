@@ -1,0 +1,2 @@
+The applicant's mathematics and programming skills are excellent, which can be learned from his performance in math competitions and kaggle competitions. In addition, the applicant has had a wonderful internship in ByteDance in the front-end direction, which makes his application competitive. Also, the applicant's academic performance at the school is very outstanding with a full GPA 4.00/4.00.
+Overall, this is a strong application. I recommend him to join Amazon.
